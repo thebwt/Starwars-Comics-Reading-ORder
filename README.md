@@ -1,0 +1,21 @@
+- Out of Band (Doesn't matter relative to mainline)
+  - Princess Leia (1-5)
+  - Lando (1-5)
+  - Chewbaca (1-5)
+  - Kanan (1-12)
+  - Obi Wan & Anakin (1-5)
+  - Han Solo (1-5)
+  - Poe Dameron
+  
+
+- Mainline
+  -First Arc
+    - Star Wars (1-12)
+    - Darth Vader (1-12)
+  - Vader Down
+    - Vader Down, part I
+    - Darth Vader 13: Vader Down, part II
+    - Star Wars 13: Vader Down, Part III
+  - Star wars and Darth vader continue
+  - After Darth Vader Comic:
+     -Doctor Aphra
