@@ -16,6 +16,8 @@
     - Vader Down, part I
     - Darth Vader 13: Vader Down, part II
     - Star Wars 13: Vader Down, Part III
+  - Star wars Annual 1
+  - Darth Vader Annual 1
   - Star wars and Darth vader continue
   - After Darth Vader Comic:
      -Doctor Aphra
